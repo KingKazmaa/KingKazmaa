@@ -1,5 +1,5 @@
 ### Hi there 👋
-tba
+Still very new at this but very excited about the mountain of things to learn!
 <!--
 **KingKazmaa/KingKazmaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
